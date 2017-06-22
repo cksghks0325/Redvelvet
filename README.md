@@ -26,5 +26,5 @@ This is an H2
 루키  
 ![redvelvet](http://newsimg.sedaily.com/2017/02/20/1OC62RWO4Q_1.jpg)
 
-# 레드벨벳안녕
-(https://cksghks0325.github.io/outtro-/)
+# 레드벨벳안녕(https://cksghks0325.github.io/outtro-/)
+
